@@ -9,3 +9,6 @@ The author is a baddie.
 Dedicated to retaliate Beijing Resistance's ugly behaviors. Automated operations will be supported in future.
 
 If you are an `aloof' Englighted agent such as S**********, ignore this and me.
+
+
+钓鱼成功，哈哈哈
